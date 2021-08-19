@@ -1,1 +1,1 @@
-# Status-of-Chronic-Kideney-Disease
+# Status-of-Chronic-Kidney-Disease
